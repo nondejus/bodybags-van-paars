@@ -5,7 +5,10 @@ https://en.wikipedia.org/wiki/Pim_Fortuyn
 https://en.wikipedia.org/wiki/Ivo_Opstelten
 ![](https://github.com/nondejus/bodybags-van-paars/blob/main/ArtBoard%20Image%20(53).jpg)
 https://en.wikipedia.org/wiki/Ahmed_Aboutaleb
-![](https://github.com/nondejus/bodybags-van-paars/blob/main/ArtBoard%20Image%20(105).jpg)
+![](https://github.com/nondejus/bodybags-van-paars/blob/main/ArtBoard%20Image%20(10).jpg)
 https://en.wikipedia.org/wiki/Involuntary_euthanasia
+![](https://github.com/nondejus/bodybags-van-paars/blob/main/ArtBoard%20Image%20(105).jpg)
 https://en.wikipedia.org/wiki/Genocide
+
+
 
